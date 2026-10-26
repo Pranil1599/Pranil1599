@@ -38,4 +38,6 @@ I turn complex telecom data into clear, automated insights, and I design practic
 
 ## Get in touch
 
+LinkedIn: [linkedin.com/in/pranil-sonawane-4a3564226](https://www.linkedin.com/in/pranil-sonawane-4a3564226/)
+
 Email: [pranil.sonawane2@gmail.com](mailto:pranil.sonawane2@gmail.com)
